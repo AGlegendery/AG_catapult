@@ -15,3 +15,8 @@ if you afraid of telegram and whatsapp and any new chat engine use mine
 
 # conversation pict
 <img width="598" height="337" alt="image" src="https://github.com/user-attachments/assets/3b7d119b-4d02-4ac0-9bf6-dee9c8027b96" />
+
+
+
+# massage me!
+here its my ID -> 21669602
